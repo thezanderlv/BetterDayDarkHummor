@@ -1,0 +1,1 @@
+<p>copyright 2020 | eddycode</p></br><p>made by edward | Mentored by zunderlv</p>
